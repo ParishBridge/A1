@@ -1,5 +1,5 @@
 ---
-title: "Beginning of the new pastoral year in Ein Arik 2026 / 2027"
+title: Beginning of the new pastoral year in Ein Arik 2026 / 2027
 date: 2026-09-28
 submission_id: 20261015_213010_Beginning_of_the_new_pastoral_year_2026_2027
 published_at: 2026-10-16T13:17:46.315440
