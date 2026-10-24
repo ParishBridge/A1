@@ -6,25 +6,25 @@ published_at: 2026-10-14T18:18:33.903734
 ---
 
 English:
-**Parish Overview and Community Update: Corpus Christi Parish**
+Parish Overview and Community Update: Corpus Christi Parish
 
-**Historical Foundation and Heritage**
+Historical Foundation and Heritage
 Corpus Christi Parish continues to stand as a cornerstone of the Catholic faith in East Sandwich, Massachusetts. Our community’s roots are deeply embedded in the historic fabric of Cape Cod, tracing back to the 1830 dedication of St. Peter’s Church, which originally served the laborers of the local glass works. This long-standing connection to the region is preserved today through our administration of St. Peter’s Cemetery and our continued presence in the Sandwich community.
 
-**Community Growth and Infrastructure**
+Community Growth and Infrastructure
 The parish has experienced significant growth over recent decades. Following the visionary leadership of Father John Bouchard, the community transitioned into a modern era with the 2003 dedication of our 1,500-seat church. This expansion has allowed us to accommodate a large and diverse congregation; recent surveys indicate a robust spiritual engagement, with average Sunday Mass attendance reaching approximately 1,200 parishioners per Mass. Our congregation represents a beautiful tapestry of long-established Cape Cod families and newer residents.
 
-**Spiritual Life and Faith Formation**
+Spiritual Life and Faith Formation
 The Eucharist remains the heart of our parish mission. We are dedicated to providing diverse opportunities for prayer and spiritual nourishment, including:
-* **Sacramental Life:** Regular celebration of the Mass, the Sacraments, and weekday devotional opportunities.
-* **Eucharistic Adoration:** Dedicated time for silent prayer and encounter with Christ.
-* **Faith Formation:** Comprehensive programs including preparation for Confirmation and the Order of Christian Initiation of Adults (OCIA) for those seeking to enter or complete their initiation into the Church.
-* **Youth Ministries:** Specialized spiritual development through the Fidelis and Fraternus ministries, designed to support our young people.
+Sacramental Life: Regular celebration of the Mass, the Sacraments, and weekday devotional opportunities.
+  Eucharistic Adoration: Dedicated time for silent prayer and encounter with Christ.
+  Faith Formation: Comprehensive programs including preparation for Confirmation and the Order of Christian Initiation of Adults (OCIA) for those seeking to enter or complete their initiation into the Church.
+Youth Ministries: Specialized spiritual development through the Fidelis and Fraternus ministries, designed to support our young people.
 
-**Mission of Service and Outreach**
+Mission of Service and Outreach
 True to our mission of carrying Christ’s mercy into the world, Corpus Christi remains a parish of active service. We continue to support the St. Vincent de Paul Society and various other charitable initiatives, working to provide tangible aid to those in need within our community. Our parish serves as a regional gathering place for the wider Catholic community, as evidenced by significant events such as the 2023 visit of the relic of St. Jude the Apostle.
 
-**Leadership and Parish Vitality**
+Leadership and Parish Vitality
 The parish is currently led by Father Jack Schrader and a dedicated pastoral team. The vitality of our community is sustained by the collaborative efforts of our priests, deacons, staff, and a dedicated group of lay volunteers who contribute to sacred music, administration, youth ministry, and faith formation. Furthermore, we are honored to play a role in the future of the Church by welcoming seminarians into our parish family during their formation.
 
 Through our shared commitment to the Eucharist, prayer, and service, Corpus Christi Parish remains a vibrant community of faith, dedicated to encountering Christ and sharing His mercy with all.
